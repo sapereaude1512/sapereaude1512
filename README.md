@@ -1,7 +1,9 @@
 👋 Hi, I’m Katarina
-👀 Software developer
-⚡ I have 3+ years of experience in UX/UI design
+
+👀 Software developer with 3+ years of experience in UX/UI design
+
 💞️ I’m looking to collaborate on innovative projects
+
 📫 Let's talk: katarinapopovic1512@gmail.com
 
 <!---
