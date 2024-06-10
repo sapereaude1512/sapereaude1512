@@ -4,7 +4,7 @@
 
 💞️ I’m looking to collaborate on innovative projects
 
-📫 Let's talk: katarinapopovic1512@gmail.com
+📫 Let's talk: katarinamaric1512@gmail.com
 
 <!---
 sapereaude1512/sapereaude1512 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
