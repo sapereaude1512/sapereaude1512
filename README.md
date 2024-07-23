@@ -2,7 +2,7 @@
 
 👀 Software developer with 3+ years of experience in UX/UI design
 
-💞️ I’m looking to collaborate on innovative projects
+💞️ I’d like to collaborate on innovative projects
 
 📫 Let's talk: katarinamaric1512@gmail.com
 
